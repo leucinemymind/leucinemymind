@@ -2,6 +2,8 @@
 
 ♡ junior
 
+♡ bunny mom :)
+
 ♡ CGWC co-head
 
 ♡ English/Español/普通话
