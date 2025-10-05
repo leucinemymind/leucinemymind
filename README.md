@@ -1,13 +1,13 @@
-♡ 16
+♡ 16, junior c/o '27
 
-♡ junior
-
-♡ bunny mom :)
+♡ biochemistry/biophysics enthusiast
 
 ♡ CGWC co-head
+
+♡ bunny mom!
 
 ♡ English/Español/普通话
 
 ♡ Python, LaTeX, R, HTML/CSS
 
-♡ classical ballet, piano, voice, musical theatre
+♡ classical ballet, piano, voice
